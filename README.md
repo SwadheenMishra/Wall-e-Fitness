@@ -1,1 +1,1 @@
-Wall-e
+Wall-e the fitness buddy! 
